@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Adobe Audition Paid Version](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/3QZuGVN)
+[![Download Adobe Audition Paid Version](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
@@ -162,7 +162,7 @@
 
 <div align="center">
 
-[![Download Adobe Audition Paid Version](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/3QZuGVN)
+[![Download Adobe Audition Paid Version](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
@@ -250,7 +250,7 @@
 
 <div align="center">
 
-[![Download Adobe Audition Paid Version](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/3QZuGVN)
+[![Download Adobe Audition Paid Version](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
