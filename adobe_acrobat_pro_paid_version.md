@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/4aLs44B)
+[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
@@ -82,7 +82,7 @@ Adobe Acrobat Pro是PDF管理的行业标准，但存在问题：
 
 <div align="center">
 
-[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/4aLs44B)
+[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
@@ -174,7 +174,7 @@ Adobe Acrobat Pro是PDF管理的行业标准，但存在问题：
 
 <div align="center">
 
-[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/4aLs44B)
+[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
@@ -261,7 +261,7 @@ Adobe Acrobat Pro是PDF管理的行业标准，但存在问题：
 
 <div align="center">
 
-[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Get%20It%20Here-00FF99?style=for-the-badge&logo=github)](https://bit.ly/4aLs44B)
+[![Download Adobe Acrobat Pro Paid Version](https://img.shields.io/badge/Get%20It%20Here-00FF99?style=for-the-badge&logo=github)](https://share.google/WMRrLVd8Cgm6KRkqB)
 
 </div>
 
